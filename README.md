@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @zvxaz
 - 👀 I’m interested in Hacking
 - 🌱 I’m currently learning how to programm a pishing tool
-- 💞️ I’m looking to collaborate with my best Friend 
+- 🤝 I’m looking to work together with my best friend
 - 📫 How to reach me zzvvxxaazz@gmail.com
 
 <!---
